@@ -1,4 +1,3 @@
 ## Olá, Ray aqui! 👋
 
-- 📓 estudando programação.
-- 👤 pronomes: ela/dela.
+Em busca de um futuro. :)
